@@ -1,2 +1,3 @@
 # checks
-5000 aweek for life
+5000 a week for life
+$getitmfs
