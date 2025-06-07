@@ -1,3 +1,3 @@
 # checks
 5000 a week for life
-paypal.me/lifeappbrandz1
+paypal.me/LGBTQQ
